@@ -1,3 +1,3 @@
 
-Hi there 👋, I'm Bruno I'm Bruno, a versatile developer
+Hi there 👋, I'm Bruno, a versatile developer
 seeking to fulfill my desire for exceptional development in all areas...
